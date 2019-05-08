@@ -6,3 +6,17 @@ I make music [Link to my site](https://endriulisbeatz.com/) and now i am learnin
 My journey began in august 2018.
 
  
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
